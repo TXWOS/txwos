@@ -16,6 +16,6 @@ Here are some ideas to get you started:
 
 
 - ⚡ Fun fact: TxWOS stands for TEXAS WORLDWIDE OIL SERVICES
-- 😄 Pronouns: I know, I know, the name is too long, therefore TxWOS
-See you soom
+- 😄 : I know, I know, the name is too long, therefore TxWOS
+See you soon
 -->
